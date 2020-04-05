@@ -1,0 +1,2 @@
+# tipstersalliance
+tipstersalliance@gmail.com
